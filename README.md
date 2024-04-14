@@ -12,14 +12,14 @@ Para mais informações, veja o site em: **http://www.inadbrasil.com** .
 ## INAD 2024
 
 Da **campanha INAD 2024** temos aqui:
- - Cartaz 2022 (A3);
- - Cartaz Keep Calm;
- - Cartaz com níveis;
+ - Cartaz 2024 (A3 ou A4);
+ - Cartaz Keep Calm (A3 ou A4);
+ - Cartaz com níveis (A3 ou A4);
  - Banner (A0);
- - Postal;
+ - Postal (10 x 15 cm);
  - Apresentação (pptx);
  - Spot sonoro; e
- - Elementos gráficos (para Insta).
+ - Elementos gráficos (para Instagram em PNG).
 
 
 **Siga-nos nas redes sociais e republique nossos materiais.**
