@@ -22,6 +22,12 @@ Da **campanha INAD 2024** temos aqui:
  - Elementos gráficos (para Instagram em PNG).
 
 
+**Clique e veja o vídeo! https://youtu.be/2VzKjr5gSx0**
+
+[![Vídeo INAD Brasil 2024: Materiais](https://img.youtube.com/vi/2VzKjr5gSx0/0.jpg)](https://youtu.be/2VzKjr5gSx0 "Vídeo INAD Brasil 2024: Materiais")
+
+
+
 **Siga-nos nas redes sociais e republique nossos materiais.**
 
 -   [Instagram](http://www.instagram.com/inad.brasil)
